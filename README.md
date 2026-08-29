@@ -1,1 +1,1 @@
-# fiqh
+# Islamische Rechtslehre (Fiqh)
